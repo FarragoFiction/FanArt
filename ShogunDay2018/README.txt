@@ -1,0 +1,1 @@
+on September 29th, 2018, Shogun officially debuted in SBURBSim.  Here is our celebration of Shogun.
